@@ -1,2 +1,2 @@
 # AnthonyRoman.github.io
-Business Card
+Business card for employment purposes. Here you will find my resume and LinkedIn account too.
